@@ -3,4 +3,12 @@
 
 ![MA](https://content.halocdn.com/media/Default/encyclopedia/characters/master-chief/master-chief-square-542x542-f4aa513845bc4582a501100cc5550b48.jpg)
 
+## *Contact*
+  * Matrix= slipsby1:nerdsin.space
+  * Discord= 丂ﾚﾉｱ丂乃ﾘ#3347
+  
+
+### For real tho if you want to use Whoogle Secure search from @benbusby hosted by my repl https://cap.slabskek.repl.co/
+
+
 
